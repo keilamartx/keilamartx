@@ -2,5 +2,5 @@
 
 - 👩🏻‍💻 :)
 - 🎓 Software Engineer
-- 📍 Hidalgo, México
+- 📍 México
 - 📢 Español - English
